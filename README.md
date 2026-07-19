@@ -1,3 +1,5 @@
-<p align="center">(https://github.com//maggybluarsh/maggybluarsh/blob/main/Без%20названия27_20260719132624.png)  
-[Atabook](https://maggy.atabook.org/) 
-[StrawPage](https://bluarsh.straw.page)
+<p align="center">
+         HEY THERE!!!
+<img width="768" height="584" alt="Image" src="https://files.catbox.moe/ehhhh3.png" />
+________________________
+[ATABOOK](https://maggy.atabook.org/)  [STRAWPAGE](https://bluarsh.straw.page)  [TUMBLR](https://www.tumblr.com/bluarsh)
