@@ -1,4 +1,3 @@
-✎ᝰ... NICE TO MEET YOU! WELCOME TO MY PAGE,,,
 <p align="center"> 
         &nbsp;&nbsp;
   
